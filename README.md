@@ -1,0 +1,1 @@
+To address this intricate problem, our e-commerce platform aims to empower individuals from these communities by providing a space where they can sell their handmade products, focusing on preserving and celebrating their traditions and creativity. Our main motive is to sell it globally as the traditional Indian culture is very attractive to the foreigners. 
